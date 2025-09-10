@@ -8,3 +8,8 @@ Parasocial interaction (PSI) refers to a kind of psychological relationship expe
 
 
 delusional loser for life, idc about him at all, idc what happens to him etc.
+
+
+this is such an embarassing lawsuit not only for jason but also for penn
+
+i hope i get in the program so my name can be protected from the public in the lawsuit, perfect, everything will be perfect ... one day ... soon
